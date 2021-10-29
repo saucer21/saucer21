@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @saucer21
+- 👀 I’m a medical student interested in Mobile-App programming
+- 📫 beingfuorisede@gmail.com
